@@ -1,4 +1,4 @@
-![プロフィール画像](kedama.png)
+![プロフィール画像](kedama.jpg)
 
 # <a name="header-1-8f7f4c1ce7a4f933663d10543562b096"></a> About
 
